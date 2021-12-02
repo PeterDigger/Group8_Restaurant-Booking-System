@@ -17,7 +17,7 @@ Group member consisted of
 4. AQILAH SYAHIRAH BINTI ISMAIL
 5. EVAN GALE DAVID FRANCIS MOTIJAL
 6. Hi
-
+7. WOI
 ---
 
 ## Due date: ```6th January 2022 (Week 14)```
