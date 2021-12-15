@@ -16,12 +16,7 @@ Group member consisted of
 3. XAVIER OPISTHEA MORUNING
 4. AQILAH SYAHIRAH BINTI ISMAIL
 5. EVAN GALE DAVID FRANCIS MOTIJAL
-6. Hi
-
-Chong edits this
-WOI MAK KAU IJAU
-
 
 ---
 
-## Due date: ```6th January 2022 (Week 14)```
+## Due date: ```21th January 2022 (Week 14)```
